@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sarfarazmeer
 - 👀 I’m interested in Web designing.
-- 🌱 I’m currently learning web & Graphic Design course.
+- 🌱 I have recently completed my course in web & Graphic Design.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sarfarajmeer1212@gmail.com
 - 😄 Pronouns: ...
